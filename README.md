@@ -1,0 +1,28 @@
+# thefuture
+<p>This letter is an invitation to participate in a low-key, collaborative, art project. Imagination plays a central role, so let’s start with it: imagine you are in an elementary school art class – one where creativity and production, rather than technique and following directions, take priority – and the theme of the day is, ‘The Future.’ Anything goes. Medium and materials used just depend on what you have at hand or what you are willing to work with. In other words, up to you. Once you are happy with what’s in front of you, you can sign it – or not – and write a little companion note – or not. </p>
+
+<p>Unfortunately, if you got this letter, chances are you are not enrolled in a grade school art class where you are encouraged to freely and expansively turn imagination into reality. In fact, it’s quite likely that most of the world around you, with the exception of the (hopefully) supportive community you’ve chosen to be a part of, actively discourages and even frowns upon you doing anything creative whatsoever. Or at the very least doesn’t really give a shit.</p>
+
+<p>Even though you might not need it, let this letter also be a reminder: creativity and imagination are the source of all human potential. First, you imagine it, then you make it. Social movements, revolutions, art projects – these all begin with the desire to bring something new into the world, often in response to a reality that has become unbearable or maybe just painfully mundane. The spark is the same one that was nourished when you were young (kids draw long before they have any idea of what they are drawing, long before any notion that drawings must become ‘whats’ at all), and then slowly, but efficiently, starved as you became an ‘adult.’ </p>
+
+<p>So, why ‘The Future?’ This smothering of the creative spark is the quite intentional work of a culture that has given up on believing that a different world is possible. By some accounts, we are living in some kind of sci-fi techno-paradise, where the world has collapsed into one huge virtual shopping mall playground. Personal cynicism aside, though, a sober look at where technology has gotten us compared to the unrealized dreams of the past paints a different picture. Can we teleport ourselves to meet other people across the globe? Well, no…but we can video-chat with them instantaneously! Have we settled for that poor substitute for human interaction? Are robots bustling around us doing all the shitty, boring, exhausting things they should have been doing for us by now (laundry, paperwork, errands, hard labor)? Well, no…most everything we do is siphoned through a computer-robot of some sort, but sitting on Facebook at the office isn’t quite as nice as not having to be at the office at all! And as for robot factories, well…they kind of exist, except the robots are just poor people in other countries whose lives are as real to us as the lives of the machines that help us order the products those real people sew or solder or smelt or sweat over.</p>
+
+<p>Technology was supposed to set us free. Surely, by 2016 – said the humans of yesteryear – people would have figured out a way to give themselves as much free time and as much relief from work as they wanted. Remember, the original idea behind robots ‘taking our jobs’ was not a dystopian nightmare, but a utopian fantasy where humans could harness technology to create a better world where everyone’s basic needs were met and people could spend their days doing what they <i>wanted</i> to do and enjoying each other’s company.</p>
+
+<p>This project is a way to rekindle some of that energy that we once used to imagine how things could be different on this planet. Your role in the project is simple:</p>
+
+<p>1) Create a vision of the future (sketch, drawing, photograph, sculpture, short film, poem, you get the idea) – it can be personal or global – use your imagination! Sci-fi visions are not the only kind!</p>
+
+<p>2) Send it to us -</p>
+
+<p>Wuv</p>
+
+<p>480 E. 8<sup>th</sup> Street,</p>
+
+<p>Reno, NV 89512</p>
+
+<p>If it’s complicated to send it that way, you can also take a picture of it/scan it and send that to ilya.arbatman@gmail.com (of course, the real thing is ideal!). It’s gotta be here by September 11<sup>th</sup>, 2016. Deadlines are a nightmare vision of the future, we know, so consider this one ‘soft.’ </p>
+
+<p>On September 16<sup>th</sup>, we are going to host a low-key gallery showing of everything we get at the Wuv album release show. It’ll be held in the Serva Pool space at the Holland Project in Reno, NV. Definitely let us know (via that e-mail above) if you have any questions about medium, presentation, scale, or whatever! </p>
+
+<p>You might be someone who creates stuff regularly, or you might be someone who hasn’t done an ‘art’ thing in a long time, if ever. Doesn’t matter. This project is about validating the act of turning something imagined into something real, and every human is fully capable of that. The project itself is something that started in the imagination and is now slowly coming into existence (with your help!). Furthermore, as this is going out to people we love and respect, it’s also a way of encouraging a community to come together, at least in action, and bring its visions of the future to a real audience of peers. Most importantly, we hope you can see it as a no-stress, fun (!!) thing to do. Imagine that whatever you ‘turn in’ is going up in the hallway of the elementary school, alongside the doodles of classmates, to hang up there for a week or two as proof of the incredible things people can imagine and of the joy and power of expression.</p>
